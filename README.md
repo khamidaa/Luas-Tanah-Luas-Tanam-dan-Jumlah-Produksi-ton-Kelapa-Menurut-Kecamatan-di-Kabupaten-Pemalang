@@ -1,0 +1,1 @@
+# Luas-Tanah-Luas-Tanam-dan-Jumlah-Produksi-ton-Kelapa-Menurut-Kecamatan-di-Kabupaten-Pemalang
